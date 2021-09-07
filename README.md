@@ -13,17 +13,17 @@
 
 ## What I'm looking for
 
-- I am a Front End / Full Stack Developer looking for development roles and high-growth 
-organizations looking to make a positive impact in society. Mostly interested opportunities 
+- I am a Front End / Full Stack Developer looking for development roles at high-growth 
+organizations focused on making a positive impact in society. Mostly interested opportunities 
 that will help grow as an engineer and team contributor to eventually move into leadership positions.
 
-- I would love to join a coomapny that has introduced or is working towards introducing
+- I would love to join a company that has introduced or is working towards introducing
 industry-disruptive technology. I believe in the power of tech to change people's lives and would love 
-to contribute to that.
+to contribute.
  
 - Above all, in any personal or professional environment, I try to be an empathetic person and focus on 
 the success of the team as a whole. I believe that this is the most effective way to see constant improvement 
-in how team works and how they achieve their goals. For this reason, I alway try to be involve in company 
+in how team works and how they achieve their goals. For this reason, I always try to be involved in company 
 organizations and the planning of social activites.   
 
 ## Contact
