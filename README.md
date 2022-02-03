@@ -6,7 +6,6 @@
 - Pronouns => He/Him
 - Front End Developer
 - Bilingual (Spanish and English)
-- Empath
 - Web Development Bootcamp Graduate
 - University of Rochester, BS in Computer Science 2018
 - Have lived in Mexico, US, Canada and England
