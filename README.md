@@ -22,7 +22,7 @@ to contribute.
  
 - Above all, in any personal or professional environment, I try to be an empathetic person and focus on 
 the success of the team as a whole. I believe that this is the most effective way to see constant improvement 
-in how team works and how they achieve their goals. For this reason, I always try to be involved in company 
+in how the team works and how they achieve their goals. For this reason, I always try to be involved in company 
 organizations and the planning of social activites.   
 
 ## Contact
