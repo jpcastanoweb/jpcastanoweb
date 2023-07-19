@@ -4,7 +4,7 @@
 
 - Mexican 
 - Pronouns => He/Him
-- Front End Developer
+- Full-Stack Developer
 - Bilingual (Spanish and English)
 - Web Development Bootcamp Graduate
 - University of Rochester, BS in Computer Science 2018
